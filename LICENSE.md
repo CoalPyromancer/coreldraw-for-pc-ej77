@@ -1,4 +1,4 @@
-# 
+# CorelDRAW for PC | CorelDRAW for Windows elite Script: vector-drawing & gradient-meshes offers the most advanced CorelDRAW for PC | CorelDRAW for Windows script, with
 
 
 
